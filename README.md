@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @4ydam
 - 👀 I’m interested in making big cash.
-- 🌱 I’m currently making some project in my free time while I teach full-time, Games Development.
-- 💞️ I’m looking to collaborate on big projects that will bring big profit.
+- 🌱 I’m currently making some projects in my free time while I teach full-time Games Development.
+- 💞️ I’m looking to collaborate on big projects that will bring big profits.
 - 📫 How to reach me? idk just message me innit. @4ydam on twitter.
 
 <!---
